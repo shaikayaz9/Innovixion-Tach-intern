@@ -1,5 +1,5 @@
 # Innovixion-Tach-intern
-I have been selected for the virthhul internship program at Innovixion Tach .
+I have been selected for the virtual internship program at Innovixion Tach .
 
 1 month internship at #innovixion tech .
 
